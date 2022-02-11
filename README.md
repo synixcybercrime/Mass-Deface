@@ -1,2 +1,10 @@
 # Mass-Deface
-Gunakan dengan bijak.
+gunakan dengan bijak
+#  Greetz To :
+- Ad4mX
+- NishX
+- SaraaX
+- KelinciXPloit
+- Zoro
+- NishSec
+- Zex
